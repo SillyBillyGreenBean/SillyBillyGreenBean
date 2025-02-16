@@ -1,7 +1,6 @@
-## HII!
+## HI
 
 - **DO NOT COPY** my ponies!
-- I don't talk much but don't be afraid to int! 
-- I'm looking for more friends! 
-- She/They
+- I don't talk much.
+- Any pronouns.
 - More info on my carrd!
