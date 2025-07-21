@@ -3,4 +3,6 @@
 - **DO NOT COPY** my ponies!
 - He/They pronouns!
 - Intrests: Haikyuu!, FNAF, The Regular Show, Sakamoto Days, Demon Slayer, MHA, Music, GL2, art, Coryxkenshin, CaseOh, MUCH MORE!
+- Most of my ponies are OCs unless said otherwise.
+
 ![download](https://github.com/user-attachments/assets/e0898a55-5f9e-42d4-a71a-e71536fef6c3)
