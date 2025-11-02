@@ -3,7 +3,7 @@
 - **DO NOT COPY** my ponies!
 - He/They pronouns!
 - **Neurodivergent**
-- I may be awkward, pretty silent, or come off as rude. I really do not intent on these things, as I get to know people, I am actually quite energetic and silly! Speaking of which, I often use all caps and exclamation points as I try to seem as friendly as possible.
+- I may be awkward, pretty silent, or come off as rude. I really do not intent on these things, as I get to know people, I am actually quite energetic and silly! Speaking of which, I often use all caps and exclamation points yeah! :)
 - Biggest interests: ***SPONGEBOB!!***
 - Intrests: Haikyuu!, FNAF, The Regular Show, Sakamoto Days, Demon Slayer, MHA, Music, GL2, art, Coryxkenshin, CaseOh, MUCH MORE!
 - Most of my ponies are OCs unless said otherwise.
